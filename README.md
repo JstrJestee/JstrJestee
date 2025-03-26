@@ -13,7 +13,7 @@
 
 "When I consider my life, I find it seasoned with many utilitez, even though, passing through the ruës, little children clabber after me: Aga! Crazy Mathurine! It's true that I'm a little tainted by this disease; my senses can be a little rancid, and my imagination a little moldy and dislocated."
       -- Mathurine de Vallois (Mathurine de Foole)
-
+- Mathurine de Vallois my GOAT. YES, there was female jesters and they were AWESOME.
   
 - Kids under 14 DNI. Please. You guys are usually just a lot sometimes 😨
 - I tend to not use tone tags, so PLEASE tell me if you want me to use some.
