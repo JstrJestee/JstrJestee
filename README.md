@@ -11,7 +11,7 @@
 - Mentally and emotionally, I am a jester (I've loved jesters since I was nine for a reason).
 - If you like historical jesters, please, oh, please, interact with me on the pixel horse game. But fictional jesters work too! I'm attracted to franchises with a jester character like a moth to light. 
 
-"When I consider my life, I find it seasoned with many utilitez, even though, passing through the ruës, little children clabber after me: Aga! Crazy Mathurine! It's true that I'm a little tainted by this disease; my senses can be a little rancid, and my imagination a little moldy and dislocated."
+"This came to me from the after-effects of a riffle blow I received in the mind at a certain Caresme-prenant ball. Baste! if I'm crazy, it's because of the occasion, which I knew how to grasp so bravely, that every year I get back more than twenty and thirteen jacobus[1] of land rent[2], not counting the baston trick. There are some who think they are Milanese and stupid people, who are more foolish than I am by more than three half-sections."
       -- Mathurine de Vallois (Mathurine de Foole)
 - Mathurine de Vallois my GOAT. YES, there was female jesters and they were AWESOME.
   
