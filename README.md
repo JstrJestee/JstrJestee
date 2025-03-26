@@ -2,11 +2,10 @@
   <img src="https://github.com/user-attachments/assets/6ae160c5-c9ed-4646-8e31-ac016580d074" width="30000"/>
 </p>
 
+<div align="center">
+  <h1>⚔️ ATTENTION: Copy my skins without permission and I'll personally dismember you medieval style ⚔️</h1>
 
-<p align="center">
-  <h1>⚔️ ATTENTION Copy my skins without permission and I'll personally dismember you medieval style ⚔️</h1>
-
-</p>
+</div>
 
 
 
