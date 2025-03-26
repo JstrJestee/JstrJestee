@@ -10,7 +10,7 @@
 
 - Mentally and emotionally, I am a jester (I've loved jesters since I was nine for a reason).
 - If you like historical jesters, please, oh, please, interact with me on the pixel horse game. But fictional jesters work too! I'm attracted to franchises with a jester character like a moth to light. 
-- Mathurine de Vallois my GOAT. 
+
 "When I consider my life, I find it seasoned with many utilitez, even though, passing through the ruës, little children clabber after me: Aga! Crazy Mathurine! It's true that I'm a little tainted by this disease; my senses can be a little rancid, and my imagination a little moldy and dislocated."
       -- Mathurine de Vallois (Mathurine de Foole)
 
