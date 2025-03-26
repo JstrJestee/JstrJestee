@@ -4,8 +4,8 @@
 
 
 <p align="center">
-  <h1>⚔️ ATTENTION ⚔️</h1>
-  <h2>Copy my skins without permission and I'll personally dismember you medieval style</h2>
+  <h1>⚔️ ATTENTION Copy my skins without permission and I'll personally dismember you medieval style ⚔️</h1>
+
 </p>
 
 
