@@ -16,9 +16,8 @@
 - Mathurine de Vallois my GOAT. YES, there was female jesters and they were AWESOME.
   
 - If you are under 14, do not interact with me. You guys are usually a lot sometimes.
-- I tend to not use tone tags, so PLEASE tell me if you want me to use some.
-
-
+- I tend to not use tone tags, so PLEASE tell me if you want me to use some. I don't want to come off as rude since I tend to be very sarcastic.
+- Darkshippers, please don't interact with me. It's not just "fiction". People have actual trauma from this sort of stuff.
 
 
 
