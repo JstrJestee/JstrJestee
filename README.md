@@ -11,8 +11,13 @@
 
 
 
+Kids under 14 DNI. Please. You guys are usually just a lot sometimes 😨
 
-- Kids under 14 DNI. Please. You guys are usually just a lot sometimes 😨
+
+<div align="center">
+  <h1>⚔️A patch of freaks I need people to know about⚔️</h1>
+
+</div>
 
 - There's someone out there calling me an ableist over a mild disagreement. Buddy, I have diagnosed autism, innatentive ADHD, and GAD. They've also drawn children making out before. For more info, check out their tumblr and report it. Warning, you're gonna find suggestive art of TWO canonical children: https://www.tumblr.com/sugar-sharkie . Their patreon is "Daijin's Sacrifice" and they justify talking sexually about fictional minors with "it was one of my alters who made those comments". It doesn't justify it if it was an alter???? That's how you create a harmful cycle if you defend harmful behavior your "alters" show, man. And making sexual remarks about minors should NEVER be defended.
 
