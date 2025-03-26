@@ -8,10 +8,18 @@
 </div>
 
 
+Mentally and emotionally, I am a jester. Mathurine de Vallois my GOAT. If you like historical jesters, PLEASE INT. Historical jesters have such a ridiculously small following when you consider how much they say about our human nature. I've loved jesters since I was 10 when I put on a jester hat at a school event back in Mexico. It was like I had received a divine blessing. 
+
 
 
 
 Kids under 14 DNI. Please. You guys are usually just a lot sometimes 😨
+
+
+
+
+
+
 
 
 <div align="center">
