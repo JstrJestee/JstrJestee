@@ -9,11 +9,11 @@
 
 
 - Mentally and emotionally, I am a jester (I've loved jesters since I was nine for a reason).
-- If you like historical jesters, please, oh, please, interact with me on the pixel horse game. But fictional jesters work too! I'm attracted to franchises with a jester character like a moth to light. 
+- If you like historical jesters, please, oh, please, interact with me on the pixel horse game. But fictional jesters work too! I'm attracted to franchises with a jester character like a moth to light. One of my favorite characters is actually Shadow Milk due to how accurate the jester symbolism is used with him (even though he sometimes calls himself a clown. Which is dumb because there is a STARK difference between jesters and clowns).
 
 "When I consider my life, I find it seasoned with many amenities, even though, passing through the streets, little children clamor after me: Aga! Crazy Mathurine! It's true that I'm a little tainted by this disease; my senses may be a little rancid, and my imagination a little moldy and shattered."
-      -- Mathurine de Vallois (Mathurine de Foole)
-- Mathurine de Vallois my GOAT. YES, there was female jesters and they were AWESOME.
+      -- Mathurine de Vallois (Mathurine la Foole)
+
   
 - If you are under 14, do not interact with me. You guys are usually a lot sometimes.
 - I tend to not use tone tags, so PLEASE tell me if you want me to use some. I don't want to come off as rude since I tend to be very sarcastic.
