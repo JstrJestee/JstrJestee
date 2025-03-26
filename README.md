@@ -1,6 +1,5 @@
 <p align="center">
-  <img src="![Screenshot_2025-03-25_201906-removebg-preview (1)](https://github.com/user-attachments/assets/e81d41d4-01a7-4e3b-a9c2-20c01495df23)
-" alt="Cool Image" width="300"/>
+  <img src="(https://github.com/user-attachments/assets/e81d41d4-01a7-4e3b-a9c2-20c01495df23)" alt="Cool Image" width="300"/>
 </p>
 
 <p align="center">## ATTENTION: Copy my skins without permission and I'll personally dismember you medieval style</p>
