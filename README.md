@@ -15,7 +15,7 @@
       -- Mathurine de Vallois (Mathurine de Foole)
 - Mathurine de Vallois my GOAT. YES, there was female jesters and they were AWESOME.
   
-- Kids under 14 DNI. Please. You guys are usually just a lot sometimes 😨
+- If you are under 14, do not interact with me. You guys are usually a lot sometimes.
 - I tend to not use tone tags, so PLEASE tell me if you want me to use some.
 
 
