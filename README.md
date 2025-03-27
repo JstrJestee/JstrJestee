@@ -13,10 +13,10 @@
   -Mathurine de Vallois (Mathurine la Foole) Jester of the court of French kings Henry III, Henry IV and Louis XIII
       
 
-  </div>
+
+
+</div>
   
-
-
 
 My dearests, that are on GitHub:
 - [@softtoyshark](https://github.com/softtoyshark) my beloved
