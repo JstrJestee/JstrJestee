@@ -16,12 +16,6 @@
   </div>
   
 
-<div align="center">
-  <h1>⚔️A patch of freaks I need people to know about⚔️</h1>
-
-</div>
-
-
 
 
 My dearests, that are on GitHub:
