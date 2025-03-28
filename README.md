@@ -55,8 +55,12 @@
 </p>
 
 
-My dearests, that are on GitHub:
-- [@softtoyshark](https://github.com/softtoyshark) my beloved
-- [@Pay2WinMyHeart](https://github.com/RBYI-DNC-NoINSPO-please) my beloved
-- [@AnxiousJester](https://github.com/AnxiousJester) my beloved
+<div align="center">
+  <p>My dearests, that are on GitHub:</p>
+  <ul>
+    <li><a href="https://github.com/softtoyshark">@softtoyshark</a> my beloved</li>
+    <li><a href="https://github.com/RBYI-DNC-NoINSPO-please">@Pay2WinMyHeart</a> my beloved</li>
+    <li><a href="https://github.com/AnxiousJester">@AnxiousJester</a> my beloved</li>
+  </ul>
+</div>
 
