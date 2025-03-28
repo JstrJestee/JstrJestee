@@ -14,7 +14,7 @@
 </div>
 
 
-<div align="right">
+<div align="left">
 
 =Do not infantilize me just because I have autism and ADHD, please. I do not use tone tags a lot either, so please tell me if you need me to use them since I tend to be very sarcastic.
 
