@@ -1,4 +1,4 @@
---Historical or fictional, the role of a jester is to blur the line between comedy and truth, otherwise what's the point of giving making them wear a motley and bells. I'm looking at you, Fizzarolli Helluva Boss. L jester design.--
+--Historical or fictional, the role of a jester is to blur the line between comedy and truth, otherwise what's the point of making them wear a motley. I'm looking at you, Fizzarolli Helluva Boss. L jester design. Should have made him look like a CLOWN, not a jester.--
 <p align="center">
   <img src="https://github.com/user-attachments/assets/6ae160c5-c9ed-4646-8e31-ac016580d074" width="30000"/>
 </p>
