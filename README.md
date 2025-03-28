@@ -57,10 +57,8 @@
 
 <div align="center">
   <p>My dearests, that are on GitHub:</p>
-  <ul>
-    <li><a href="https://github.com/softtoyshark">@softtoyshark</a> my beloved</li>
-    <li><a href="https://github.com/RBYI-DNC-NoINSPO-please">@Pay2WinMyHeart</a> my beloved</li>
-    <li><a href="https://github.com/AnxiousJester">@AnxiousJester</a> my beloved</li>
-  </ul>
+  <p><a href="https://github.com/softtoyshark">@softtoyshark</a> my beloved</p>
+  <p><a href="https://github.com/RBYI-DNC-NoINSPO-please">@Pay2WinMyHeart</a> my beloved</p>
+  <p><a href="https://github.com/AnxiousJester">@AnxiousJester</a> my beloved</p>
 </div>
 
