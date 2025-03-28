@@ -43,7 +43,16 @@
   </tr>
 </table>
 
+
+<br><br>
 <hr> 
+<br><br>
+
+
+
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/ff87c4e9-6357-4468-8c2e-3daa7b404224" width="30000"/>
+</p>
 
 
 My dearests, that are on GitHub:
