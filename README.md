@@ -14,18 +14,25 @@
 </div>
 
 
-<p align="right">
-  <img src="https://github.com/user-attachments/assets/047f0fe1-e035-4573-a7f6-b6fb126e0025" width="300"/>
-</p>
-<div align="left">
+<table>
+  <tr>
+    <td align="right">
+      <img src="https://github.com/user-attachments/assets/047f0fe1-e035-4573-a7f6-b6fb126e0025" width="300"/>
+    </td>
+    <td align="left">
+      <p>
+        = Do not infantilize me just because I have autism and ADHD, please. I do not use tone tags a lot either, so please tell me if you need me to use them since I tend to be very sarcastic.
+      </p>
+      <p>
+        = Kids under 14 DNI. You guys are somehow more inappropriate and dirty-minded than most 16+ people, it's ridiculous.
+      </p>
+      <p>
+        = I'm very hesitant to talk with Hazbin Hotel/Helluva Boss/Dandy's World fans. The only reason I don't straight up put them on my DNI list is because some of my closest friends converted to the fandoms.
+      </p>
+    </td>
+  </tr>
+</table>
 
-=Do not infantilize me just because I have autism and ADHD, please. I do not use tone tags a lot either, so please tell me if you need me to use them since I tend to be very sarcastic.
-
-=Kids under 14 DNI. You guys are somehow more inappropriate and dirty-minded than most 16+ people, it's ridiculous.
-
-=I'm very hesitant to talk with Hazbin Hotel/Helluva Boss/Dandy's World fans. The only reason I don't straight up put them on my DNI list is because some of my closest friends converted to the fandoms.
-
-</div>
 
 My dearests, that are on GitHub:
 - [@softtoyshark](https://github.com/softtoyshark) my beloved
