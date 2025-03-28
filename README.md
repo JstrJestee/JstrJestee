@@ -14,6 +14,9 @@
 </div>
 
 
+<p align="right">
+  <img src="https://github.com/user-attachments/assets/047f0fe1-e035-4573-a7f6-b6fb126e0025" width="300"/>
+</p>
 <div align="left">
 
 =Do not infantilize me just because I have autism and ADHD, please. I do not use tone tags a lot either, so please tell me if you need me to use them since I tend to be very sarcastic.
