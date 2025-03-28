@@ -27,7 +27,7 @@
         = Kids under 14 DNI. You guys are somehow more inappropriate and dirty-minded than most 16+ people, it's ridiculous.
       </p>
       <p>
-        = I'm very hesitant to talk with Hazbin Hotel/Helluva Boss/Dandy's World fans. The only reason I don't straight up put them on my DNI list is because some of my closest friends converted to the fandoms.
+        = I'm very hesitant to talk with Hazbin Hotel/Helluva Boss/Dandy's World fans. The only reason I don't straight up put them on my DNI list is because some of my closest friends converted to the fandoms recently.
       </p>
     </td>
   </tr>
