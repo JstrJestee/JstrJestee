@@ -56,7 +56,7 @@
 
 
 <div align="center">
- Check out my straw.page for more info about me! Whatever the theme of it is is probably what my current brainworm.
+ Check out my straw.page for more info about me! Whatever the theme of it is is likely my current brainworm.
 </div>
 
 
