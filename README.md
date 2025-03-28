@@ -39,6 +39,9 @@
       <p>
         = I'm always open for c+h on Pony Town!
       </p>
+      <p>
+        = I've loved jesters since I was 9. Not just historical jesters, fictional too! I'm attracted to any franchise with a jester character in it too. So please talk to me about jesters. Just don't call jesters "clowns" because that will provoke a frustrated eye-twitch from me, jokingly. I'm not going to crash out but I will correct you.
+      </p>
     </td>
   </tr>
 </table>
