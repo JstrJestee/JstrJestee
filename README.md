@@ -28,7 +28,7 @@
     </td>
     <td align="left">
       <p>
-        = Do not infantilize me just because I have autism and ADHD, please. I do not use tone tags a lot either, so please tell me if you need me to use them since I tend to be very sarcastic.
+        = Do not infantilize me just because I have autism, GAD, and ADHD, please. I do not use tone tags a lot either, so please tell me if you need me to use them since I tend to be very sarcastic.
       </p>
       <p>
         = Kids under 14 DNI. You guys are somehow more inappropriate and dirty-minded than most 16+ people, it's ridiculous.
@@ -40,7 +40,10 @@
         = I'm always open for c+h on Pony Town!
       </p>
       <p>
-        = I've loved jesters since I was 9. Not just historical jesters, fictional too! I'm attracted to any franchise with a jester character in it too. So please talk to me about jesters. Just don't call jesters "clowns" because that will provoke a frustrated eye-twitch from me, jokingly. I'm not going to crash out but I will correct you.
+        = I've loved jesters since I was 9. Not just historical jesters but fictional too! I'm attracted to any franchise with a jester character in it like a moth to light So please talk to me about jesters. Just don't call jesters "clowns" because I might correct you. (Clowns and jesters are two different people)
+      </p>
+      <p>
+        = People who sexualize lesbians or gays, DNI. This includes fujoshis and whatever their male counterpart is. My sexuality should not be your fetish.
       </p>
     </td>
   </tr>
