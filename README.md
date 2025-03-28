@@ -12,11 +12,13 @@
 </div>
 
 
+<p></p>
 
 
 
 <hr> 
 
+<p></p>
 
 
 
@@ -42,6 +44,7 @@
   </tr>
 </table>
 
+<hr> 
 
 
 My dearests, that are on GitHub:
