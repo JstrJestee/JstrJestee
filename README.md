@@ -33,7 +33,10 @@
         = Kids under 14 DNI. You guys are somehow more inappropriate and dirty-minded than most 16+ people, it's ridiculous.
       </p>
       <p>
-        = I'm very hesitant to talk with Hazbin Hotel/Helluva Boss/Dandy's World fans. The only reason I don't straight up put them on my DNI list is because some of my closest friends converted to the fandoms recently.
+        = I'm very hesitant to talk with Hazbin Hotel/Helluva Boss/Dandy's World fans. Only reason I don't have the fandoms on my DNI list is because of friends, but even so, I keep my distance from strangers who like the franchsises.
+      </p>
+      <p>
+        = I'm always open for c+h on Pony Town!
       </p>
     </td>
   </tr>
