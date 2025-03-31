@@ -46,7 +46,7 @@
   </tr>
 </table>
 
---Historical or fictional, the role of a jester is to blur the line between comedy and truth, otherwise what's the point of making them wear a motley. I'm looking at you, Fizzarolli Helluva Boss. L jester design. Should have made him look like a CLOWN, not a jester. He doesn't do anything the titular jester archetype is supposed to do apart from being funny and rude. Should have made him look like a clown since that's more accurate--
+shimmy shimmy coco pop 
 
 <br><br>
 <hr> 
