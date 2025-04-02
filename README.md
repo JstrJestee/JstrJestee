@@ -34,7 +34,7 @@
         = I'm very hesitant to talk with Hazbin Hotel/Helluva Boss/Dandy's World fans. Only reason I don't have the fandoms on my DNI list is because of friends, but even so, I keep my distance from strangers who like the franchsises.
       </p>
       <p>
-        = I'm always open for c+h on Pony Town!
+        = Proshippers DNI. I hate how proshippers always say "it's fiction not reality" as an excuse. It entirely ignores how people have genuine trauma from the incest and pedophilia you actual degenerates romantisize. It's repulsive and selfish and you people are the reason why fandoms are such dangerous places for people who have gone through this sort of stuff. Fiction is meant to reflect some form of reality retold in a different form. You degenerates just can't differentiate between familial love and romantic love PROBABLY because you never got hugged by any of your parents.
       </p>
       <p>
         = I've loved jesters since I was 9. Not just historical jesters but fictional too! I'm attracted to any franchise with a jester character in it like a moth to light So please talk to me about jesters. Just don't call jesters "clowns" because I might correct you. (Clowns and jesters are two different people)
