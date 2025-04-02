@@ -46,7 +46,7 @@
   </tr>
 </table>
 
-shimmy shimmy coco pop 
+Also this is entirely off topic, but I'm an avid CR:K fan and I've been a fan since the Golden Cheese Kingdom update and I was a Shadow Milk fan ever since the trailers released. So no, I am not one of the new, and many, Shadow Milk fans. I don'w want to be that person, but I'm left with no choice, people who joined the CR:K fandom in the past year DNI PLEASE. It's just Shadow Milk Cookie fans who ignore the fact other cookies exist and it's so annoying. Because of them, I can't say I'm a Shadow Milk Cookie fan without coming off as a weirdo, because let's be honest, all new Smilk fans came from tik tok and are either gooners or some other form of annoying. Please DNI.
 
 <br><br>
 <hr> 
