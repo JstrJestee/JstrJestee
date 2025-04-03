@@ -46,7 +46,7 @@
   </tr>
 </table>
 
-Also entirely off topic, someone I know irl who goes to my school has made racist comments towards me (I'm brown and Mexican) and justifies them with "well, you've made homophobic comments before" (I'm a lesbian who made fun of her own sexuality and this person is white and American making fun of my race and nationality). Same person defended blackface saying it's not bad if done in private (So you're saying it's okay to be racist in private so no one gets mad at you????). https://github.com/cemeterycollective?tab=followers
+Also entirely off topic, someone I know irl who goes to my school has made racist comments towards me (I'm brown and Mexican) and justifies them with "well, you've made homophobic comments before" (I'm a lesbian who made fun of her own sexuality and this person is white and American making fun of my race and nationality). Same person defended blackface saying it's not bad if done in private (So you're saying it's okay to be racist in private so no one gets mad at you????). https://github.com/cemeterycollective?tab=followers. This is their github, so beware if you're approached by someone who has this github. I might post on here their typical pony town style so people can beware more. They're in a couple of regis, and I'm trying to get in contact with them to tell them they've let in someoene who is problematic irl.
 
 <br><br>
 <hr> 
