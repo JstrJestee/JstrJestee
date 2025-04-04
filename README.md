@@ -28,19 +28,12 @@
         = Do not infantilize me just because I have autism, GAD, and ADHD, please. (I say this because people overuse tone tags just because of my autism, overexplain simple things, and if I go quiet for just a second people ask if I'm okay due to my GAD. I appreciate the concern but it really feels like I'm being treated like a cry-baby kid who can't do anything) I do not use tone tags a lot either, so please tell me if you need me to use them since I tend to be very sarcastic.
       </p>
       <p>
-        = Kids under 14 DNI. You guys are somehow more inappropriate and dirty-minded than most 16+ people, it's ridiculous.
       </p>
       <p>
-        = I'm very hesitant to talk with Hazbin Hotel/Helluva Boss/Dandy's World fans. Only reason I don't have the fandoms on my DNI list is because of friends, but even so, I keep my distance from strangers who like the franchsises.
+    
       </p>
       <p>
-        = Proshippers DNI. I hate how proshippers always say "it's fiction not reality" as an excuse. It entirely ignores how people have genuine trauma from the incest and pedophilia you actual degenerates romantisize. It's repulsive and selfish and you people are the reason why fandoms are such dangerous places for people who have gone through this sort of stuff. Fiction is meant to reflect some form of reality retold in a different form. You piteous lumps of writhing flesh just can't differentiate between familial love and romantic love because you likely never got hugged by any of your parents and, by god, does it show.
-      </p>
-      <p>
-        = I've loved jesters since I was 9. Not just historical jesters but fictional too! I'm attracted to any franchise with a jester character in it like a moth to light So please talk to me about jesters. Just don't call jesters "clowns" because I might correct you. (Clowns and jesters are two different people)
-      </p>
-      <p>
-        = People who sexualize lesbians or gays, DNI. This includes fujoshis and whatever their male counterpart is. My sexuality should not be your fetish.
+        
       </p>
     </td>
   </tr>
