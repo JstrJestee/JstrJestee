@@ -28,29 +28,21 @@
         = Do not infantilize me just because I have autism, GAD, and ADHD, please. (I say this because people overuse tone tags just because of my autism, overexplain simple things, and if I go quiet for just a second people ask if I'm okay due to my GAD. I appreciate the concern but it really feels like I'm being treated like a cry-baby kid who can't do anything) I do not use tone tags a lot either, so please tell me if you need me to use them since I tend to be very sarcastic.
   </tr>
 </table>
-    <td align="right">
+   <table>
+  <tr>
+    <td align="right" style="vertical-align: top;">
       <img src="https://github.com/user-attachments/assets/1482784f-baf2-4e28-a74e-5347f91e53d7" width="900"/>
     </td>
-    <td align="left">
-      <p>
-        =Someone I know irl who goes to my school has made racist comments towards me (I'm brown and Mexican) and justifies them with "well, you've made homophobic comments before" (I'm a lesbian who made fun of my own sexuality and this person is white and American making fun of my race and nationality).
-
+    <td align="left" style="vertical-align: top;">
+      <p>= Someone I know in real life who goes to my school has made racist comments towards me (I'm brown and Mexican) and justifies them with "well, you've made homophobic comments before" (I'm a lesbian who made fun of my own sexuality and this person is white and American making fun of my race and nationality).</p>
+      <p>= Made fun of my accent (English is not my first language and while I do encourage people to correct my grammar and pronunciation mistakes, it does not mean you can mock my accent. There is a stark difference).</p>
+      <p>Also defended blackface saying it's not bad if done in private or if "not meant to be insulting".</p>
+      <p>Called me a bitch repeatedly even after I asked him to stop.</p>
+      <p>🔗 <a href="https://github.com/cemeterycollective?tab=followers" target="_blank">This is his GitHub</a>, so beware if you're approached by someone who has this account. He's in a couple of registries, and I'm trying to get in contact with them to tell them they've let in someone who is problematic in real life.</p>
+    </td>
   </tr>
-      <p>
-       = Made fun of my accent (English is not my first language and while I do encourage people to correct my grammar and pronounciation mistakes, it does not mean you can mock my accent. There is a stark difference). 
-      </p>
-      </tr>
-      <p>
-      Also efended blackface saying it's not bad if done in private or if "not meant to be insulting". 
-      </p>
-      <p>
-        Called me a bitch repeatedly even after I asked him to stop.
-      </p>
-      <p>
-        https://github.com/cemeterycollective?tab=followers. This is his github, so beware if you're approached by someone who has this github. He's in a couple of regis, and I'm trying to get in contact with them to tell them they've let in someoene who is problematic irl.
-      </p>
-      
 </table>
+
 
 <br><br>
 <hr> 
