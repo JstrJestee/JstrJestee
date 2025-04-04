@@ -33,7 +33,7 @@
       <img src="https://github.com/user-attachments/assets/afc3e88c-17db-47b5-a626-0f0f196c33ed" width="900"/>
     </td>
     <td align="left" style="vertical-align: top;">
-      <p>= The person here is someone I know in real life who goes to my school has made racist comments towards me (I'm brown and Mexican) and justifies them with "well, you've made homophobic comments before" (I'm a lesbian who made fun of my own sexuality and this person is white and American making fun of my race and nationality).</p>
+      <p>= The person here is someone I know in real life who goes to my school and has made racist comments towards me (I'm brown and Mexican) and justifies them with "well, you've made homophobic comments before" (I'm a lesbian who made fun of my own sexuality and this person is white and American making fun of my race and nationality).</p>
       <p>= Made fun of my accent (English is not my first language and while I do encourage people to correct my grammar and pronunciation mistakes, it does not mean you can mock my accent. There is a stark difference).</p>
       <p>Also defended blackface saying it's not bad if done in private or if "not meant to be insulting".</p>
       <p>Called me a bitch repeatedly even after I asked him to stop.</p>
