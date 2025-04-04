@@ -37,7 +37,7 @@
       <p>= Made fun of my accent (English is not my first language and while I do encourage people to correct my grammar and pronunciation mistakes, it does not mean you can mock my accent. There is a stark difference).</p>
       <p>Also defended blackface saying it's not bad if done in private or if "not meant to be insulting".</p>
       <p>Called me a bitch repeatedly even after I asked him to stop.</p>
-      <p>🔗 <a href="https://github.com/cemeterycollective?tab=followers" target="_blank">This is his GitHub</a>, so beware if you're approached by someone who has this account. He's in a couple of registries, and I'm trying to get in contact with them to tell them they've let in someone who is problematic in real life.</p>
+      <p>He keeps changing his github to run away from me linking him to any document me or my friends make to call him out. So I've put one of his ponies here. He has the same tinting style for all his ponies (minimal shading with purple tint) Beware if you are approached by someone who looks like this. He is in many regis and I'm trying to get in contact with them to inform them of the harm this person has done.</p>
     </td>
   </tr>
 </table>
