@@ -26,16 +26,6 @@
     <td align="left">
       <p>
         = Do not infantilize me just because I have autism, GAD, and ADHD, please. (I say this because people overuse tone tags just because of my autism, overexplain simple things, and if I go quiet for just a second people ask if I'm okay due to my GAD. I appreciate the concern but it really feels like I'm being treated like a cry-baby kid who can't do anything) I do not use tone tags a lot either, so please tell me if you need me to use them since I tend to be very sarcastic.
-      </p>
-      <p>
-      </p>
-      <p>
-    
-      </p>
-      <p>
-        
-      </p>
-    </td>
   </tr>
 </table>
 
