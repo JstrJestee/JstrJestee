@@ -11,7 +11,6 @@
 
 
 
-
 <br><br>
 <hr> 
 <br><br>
@@ -31,7 +30,7 @@
    <table>
   <tr>
     <td align="right" style="vertical-align: top;">
-      <img src="https://github.com/user-attachments/assets/1482784f-baf2-4e28-a74e-5347f91e53d7" width="900"/>
+      <img src="https://github.com/user-attachments/assets/afc3e88c-17db-47b5-a626-0f0f196c33ed" width="900"/>
     </td>
     <td align="left" style="vertical-align: top;">
       <p>= Someone I know in real life who goes to my school has made racist comments towards me (I'm brown and Mexican) and justifies them with "well, you've made homophobic comments before" (I'm a lesbian who made fun of my own sexuality and this person is white and American making fun of my race and nationality).</p>
