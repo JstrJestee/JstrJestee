@@ -34,7 +34,7 @@ There are those who think they are made of Milanese fabric and wise men, yet the
 
 
 <div align="center">
- Check out my straw.page for more info about me! Whatever the theme of it is is likely my current brainworm.
+ Check out my straw.pages. The "Jesteesmilk" one isn't my main. It's just a matching straw with my pookie Cetrus
 </div>
 
 
