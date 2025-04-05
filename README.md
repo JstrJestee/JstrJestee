@@ -25,8 +25,10 @@
     <td align="left">
       <p>
         "When I consider my life, I find it seasoned with much usefulness, even though, when I walk through the streets, little children mock me: Aga! Mathurine the fool! It is true that I am somewhat afflicted with that malady; my senses may be a little rancid, and my imagination somewhat moldy and disjointed. This came to me as a relic of a carbine shot that I took to the head at a certain Carnival ballet. But never mind! If I am a fool, it is by profession, and I have embraced it so bravely that every year I earn more than twenty-three jacobus in real estate income, not counting the tips.
-There are those who think they are made of Milanese fabric and wise men, yet they are bigger fools than I am by at least three half-measures. Consider, if you please, that I spend my time cheerfully and without melancholy. If I start feeling bored, I visit my good friend, who serves me a soup with hyssop, full of fat and golden lard, and by the end of the meal, my scoundrel of a coin, with a “See you next time, Mathurine.” But I am always ready to serve gallant men; in peace or war, at any hour, my armor is always in good condition, for I frequently polish it with a cloth suited for the occasion—though unlike those used in taverns, mine is fuzzy at the back of the handle, while theirs are at the front.
-        -The Essays of Mathurine (Un-checked English translation)
+There are those who think they are made of Milanese fabric and wise men, yet they are bigger fools than I am by at least three half-measures. Consider, if you please, that I spend my time cheerfully and without melancholy. If I start feeling bored, I visit my good friend, who serves me a soup with hyssop, full of fat and golden lard, and by the end of the meal, my scoundrel of a coin, with a “See you next time, Mathurine.” But I am always ready to serve gallant men; in peace or war, at any hour, my armor is always in good condition, for I frequently polish it with a cloth suited for the occasion—though unlike those used in taverns, mine is fuzzy at the back of the handle, while theirs are at the front."
+        <p>
+          -The Essays of Mathurine (Un-checked English translation)
+        </p>
   </tr>
 
 
