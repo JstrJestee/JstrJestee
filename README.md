@@ -24,31 +24,12 @@
     </td>
     <td align="left">
       <p>
-        = Do not infantilize me just because I have autism, GAD, and ADHD, please. (I say this because people overuse tone tags just because of my autism, overexplain simple things, and if I go quiet for just a second people ask if I'm okay due to my GAD. I appreciate the concern but it really feels like I'm being treated like a cry-baby kid who can't do anything) I do not use tone tags a lot either, so please tell me if you need me to use them since I tend to be very sarcastic.
+        "When I consider my life, I find it seasoned with much usefulness, even though, when I walk through the streets, little children mock me: Aga! Mathurine the fool! It is true that I am somewhat afflicted with that malady; my senses may be a little rancid, and my imagination somewhat moldy and disjointed. This came to me as a relic of a carbine shot that I took to the head at a certain Carnival ballet. But never mind! If I am a fool, it is by profession, and I have embraced it so bravely that every year I earn more than twenty-three jacobus in real estate income, not counting the tips.
+There are those who think they are made of Milanese fabric and wise men, yet they are bigger fools than I am by at least three half-measures. Consider, if you please, that I spend my time cheerfully and without melancholy. If I start feeling bored, I visit my good friend, who serves me a soup with hyssop, full of fat and golden lard, and by the end of the meal, my scoundrel of a coin, with a “See you next time, Mathurine.” But I am always ready to serve gallant men; in peace or war, at any hour, my armor is always in good condition, for I frequently polish it with a cloth suited for the occasion—though unlike those used in taverns, mine is fuzzy at the back of the handle, while theirs are at the front.
+Long live folly! It’s my livelihood. By God! Tabarin profits more with two or three foolish questions and some dung-based riddles than his master does with all his Questo è un rimedio santo per sanare tutti gli morbi. Because the world wants nothing but jesting; that’s why everything ends in farce—so people remember to come back. The wisdom of this world is folly before God, which gives me hope that in the next life, I will be rewarded doubly, for I am foolish enough for two in this one."
+        -The ssays of Mathurine (Un-checked English translation)
   </tr>
-</table>
-   <table>
-<br><br>
-<hr> 
-<br><br>
-  <tr>
-    <td align="right" style="vertical-align: top;">
-      <img src="https://github.com/user-attachments/assets/afc3e88c-17db-47b5-a626-0f0f196c33ed" width="900"/>
-    </td>
-    <td align="left" style="vertical-align: top;">
-      <p>= The person here is someone I know in real life who goes to my school and has made racist comments towards me (I'm brown and Mexican) and justifies them with "well, you've made homophobic comments before" (I'm a lesbian who made fun of my own sexuality and this person is white and American making fun of my race and nationality).</p>
-      <p>= Made fun of my accent (English is not my first language and while I do encourage people to correct my grammar and pronunciation mistakes, it does not mean you can mock my accent. There is a stark difference).</p>
-      <p>Also defended blackface saying it's not bad if done in private or if "not meant to be insulting".</p>
-      <p>Called me a bitch repeatedly even after I asked him to stop.</p>
-      <p>He keeps changing his github to run away from me linking him to any document me or my friends make to call him out. So I've put one of his ponies here. He has the same tinting style for all his ponies (minimal shading with purple tint. Commonly cosplays Cassidy and Mercy from Overwatch, Vampire Cookie, Pure Vanilla cookie, Blackberry cookie, Shadow Milk cookie, and Adventurer Cookie from Cookie Run: Kingdom, and Jeff from marvel Rivals,) Beware if you are approached by someone who looks like this. He is in many regis and I'm trying to get in contact with them to inform them of the harm this person has done.</p>
-    </td>
-  </tr>
-</table>
 
-
-<br><br>
-<hr> 
-<br><br>
 
 
 <div align="center">
