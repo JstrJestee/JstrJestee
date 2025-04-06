@@ -20,7 +20,7 @@
 <table>
   <tr>
     <td align="right">
-      <img src="https://github.com/user-attachments/assets/7b345d3c-a97c-4041-ae5a-e8b6aa2e2f8c" width="9000"/>
+      <img src="https://github.com/user-attachments/assets/7b345d3c-a97c-4041-ae5a-e8b6aa2e2f8c" width="900000"/>
     </td>
     <td align="left">
       <p>
