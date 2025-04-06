@@ -24,7 +24,7 @@
     </td>
     <td align="left">
       <p>
-        If you're here from the GC NEST and you stumbled upon me on pony town, please don't int with me, post a screenshot on the gc nest that you found me like I'm some cryptid, or anything. I haven't been on discord for a while and the reason I only used it was to be on that server. I had fun and the reason I unfriended everyone wasn't because of some shipping dispute, but because I wanted to move on and getting kicked from the server opened my eyes to a door I needed to pass in order to move on from that dark time I was going through. There is no bitterness involved.
+        If you're here from the GC NEST and you stumbled upon me on pony town, please don't int with me, post a screenshot on the gc nest that you found me like I'm some cryptid, or anything. I haven't been on discord for a while and the reason I only used it was to be on that server. I had fun and the reason I unfriended everyone wasn't because of some shipping dispute, but because I wanted to move on and getting kicked from the server opened my eyes to a door I needed to pass in order to move on from a dark time I was going through that wasn't related to the server, but the server was attached to it. There is no bitterness involved in my decision, you guys are all awesome.
       </p>
       <p>
         So in essence, I’m not the person that was in the server anymore, and thank god. I just ask that you all respect that I’ve moved on just as I've respected you guys' wishes, and please understand where I am coming from when I say this. I wish you all well, but I’m done with that part of my life.
