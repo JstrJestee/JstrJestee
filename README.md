@@ -17,19 +17,6 @@
 
 
 
-<table>
-  <tr>
-    <td align="right">
-      <img src="https://github.com/user-attachments/assets/7b345d3c-a97c-4041-ae5a-e8b6aa2e2f8c" width="900000"/>
-    </td>
-    <td align="left">
-      <p>
-        If you're here from the GC NEST and you stumbled upon me on pony town, please don't int with me, post a screenshot on the gc nest that you found me like I'm some cryptid, or anything. I haven't been on discord for a while and the reason I only used it was to be on that server. I had fun and the reason I unfriended everyone wasn't because of some shipping dispute, but because I realized the role I was playing on that server wasn't the real me, and I got tired of having to pretend I have an entirely different sense of humor and personality just to fit in. I'm happy I left on terms that can't be considered "bad", but I think it's best I cut all contact regardless. There is no bitterness involved in my decision, you guys are all awesome.
-      </p>
-      <p>
-        So in essence, I’m not the person that was in the server anymore, and thank god. I just ask that you all respect that I’ve moved on just as I've respected you guys' wishes, and please understand where I am coming from when I say this. I wish you all well, but I’m done with that part of my life.
-        </p>
-  </tr>
 
 
 
