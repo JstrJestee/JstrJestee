@@ -25,7 +25,7 @@
 </div>
 
 <p align="center">
-  Proshippers dni. Under 14 dni. Over 20 dni 🕺💃
+  Proshippers dni. Fujoshis dni. Under 14 dni. Over 20 dni. Hazbin Hotel/Helluva Boss fans dni. 🕺💃
 </p>
 
 <p align="center">
