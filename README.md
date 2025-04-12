@@ -24,7 +24,9 @@
  Check out my straw.pages. The "Jesteesmilk" one isn't my main. It's just a matching straw with my pookie Cetrus
 </div>
 
-
+<p align="center">
+  Proshippers dni. Under 14 dni. Over 20 dni 🕺💃
+</p>
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/ff87c4e9-6357-4468-8c2e-3daa7b404224" width="300"/>
