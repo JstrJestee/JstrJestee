@@ -27,6 +27,9 @@
 <p align="center">
   Proshippers dni. Fujoshis dni. Under 15 dni. Over 20 dni. Hazbin Hotel/Helluva Boss fans dni. 🕺💃
 </p>
+<p align="center">
+  Also, also, I tend to not use tone tags and I get kind of annoyed when someone over uses them with me just because I'm, y'know, autistic. Still, if you need me to use tone tags, PLEASE tell me. I know not everyone with autism is like me on regards to to ne tags so PLEASE tell me if you need me to use tone tags since I tend to be very, very sarcastic. 
+</p>
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/ff87c4e9-6357-4468-8c2e-3daa7b404224" width="300"/>
