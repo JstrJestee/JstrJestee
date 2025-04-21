@@ -49,5 +49,5 @@
 <br><br> 
 
 <p align="center">
-   Thanks for reading. Love youuu. I'm blowing a big, fat virtual kiss at you rn for reading this.
+   Thanks for reading. Love youuu. I'm blowing a big, fat virtual kiss at you rn for reading this. Duck and cover if you don't want to get hit by it because it IS explosive.
 </p>
