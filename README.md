@@ -49,5 +49,10 @@
 <br><br> 
 
 <p align="center">
-   Thanks for reading. Love youuu. I'm blowing a big, fat, virtual kiss at you rn for reading this. Duck and cover if you don't want to get hit by it because it IS explosive.
+   Thanks for reading!!! Love youuu!! I'm blowing a big, fat, virtual kiss at you rn for reading this. Duck and cover if you don't want to get hit by it because it IS explosive.
+</p>
+
+<p align="center">
+   "Long live folly, it is my livelihood!" 
+   <br> - Mathurine de Vallois (Mathurine la Foole), Jester of the court of French kings Henry III, Henry IV, and Louis XIII  
 </p>
