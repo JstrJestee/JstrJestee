@@ -53,6 +53,6 @@
 </p>
 
 <p align="center">
-   "Long live folly, it is my livelihood!" 
+   "Long live folly; it is my livelihood!" 
    <br> - Mathurine de Vallois (Mathurine la Foole), Jester of the court of French kings Henry III, Henry IV, and Louis XIII  
 </p>
