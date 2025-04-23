@@ -30,7 +30,9 @@
 <p align="center">
   Also, also, I tend to not use tone tags and I get kind of annoyed when someone over uses them with me just because I'm, y'know, autistic. Still, if you need me to use tone tags, PLEASE tell me. I know not everyone with autism is like me on regards to tone tags so PLEASE tell me if you need me to use tone tags since I tend to be very, very sarcastic, and English not being my first language can often times lead to miscommunications COUGH. Working on that!!!!!! 
 </p>
-
+<p align="center">
+  Final note is that I notice people often start bombarding me with "are you alright?" questions if I go quiet for just a second when they find out I have diagnosed GAD. I appreaciate the concern, really, I do! I won't get mad, but it gets tedious to have to keep telling people I'm okay, just zoned out/got busy with smt. 
+</p>
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/ff87c4e9-6357-4468-8c2e-3daa7b404224" width="300"/>
