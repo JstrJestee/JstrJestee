@@ -27,7 +27,7 @@
 <br><br>
 
 <p align="center">
-  Proshippers dni. Fujoshis dni. Under 15 dni. Over 20 dni. Hazbin Hotel/Helluva Boss fans dni. 🕺💃
+  Proshippers dni. Fujoshis dni. Under 15 dni. Over 20 dni. "Newgen" CR:K fans DNI (as if you joined the fandom in 2025). Hazbin Hotel/Helluva Boss fans dni. 🕺💃
 </p>
 
 
