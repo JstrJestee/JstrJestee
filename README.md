@@ -45,7 +45,6 @@
 
 <br><br>
 <hr> 
-<br><br> 
 
 <p align="center">
    "Long live folly; it is my livelihood!" 
