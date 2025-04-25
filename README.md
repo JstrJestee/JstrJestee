@@ -21,7 +21,7 @@
 
 
 <div align="center">
- Check out my straw.pages. The "Jesteesmilk" one isn't my main. It's just a matching straw with my pookie Cetrus
+ Check out my straw.pages. The "Jesteesmilk" one isn't my main. It's just a matching straw with my ever so beloved, ever so lovely, ever so in debt, pookie Cetrus ♡
 </div>
 
 <br><br>
