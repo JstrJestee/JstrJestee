@@ -30,6 +30,10 @@
   Proshippers dni. Fujoshis dni. Under 15 dni. Over 25 dni. "Newgen" CR:K fans dni (as in you joined the fandom in 2025). Hazbin Hotel/Helluva Boss fans dni. Omori fans dni. (ALL of my DNI's, except the prosshiper one, have really deep lore behind them, I wish I was joking but I have my reasons. Yikes!!!) 🕺💃
 </p>
 
+<p align="center">
+  English is not my first language, so expect some random incoherent gurgles when my mind suddenly goes blank.
+</p>
+
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/ff87c4e9-6357-4468-8c2e-3daa7b404224" width="300"/>
