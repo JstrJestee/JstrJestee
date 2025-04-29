@@ -31,7 +31,13 @@
 </p>
 
 <p align="center">
-  English is not my first language, so expect some random incoherent gurgles when my mind suddenly goes blank.
+  Proshippers dni (Since people ask for specifics when it comes to 'proshipper' I mean: PEOPLE WHO SHIP MINORS WITH ADULTS OR RELATIVES TOGETHER. "It's just fiction tho" Mofo idgaf 🤣🤣🤣🤣🤣)
+</p>
+
+<br>
+
+<p align="center">
+  Under 15 dni. Over 25 dni.
 </p>
 
 
