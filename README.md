@@ -33,7 +33,7 @@
 <br>
 
 <p align="center">
-  Under 15 dni. Over 25 dni.
+  Under 13 dni. Over 25 dni. 
 </p>
 
 
