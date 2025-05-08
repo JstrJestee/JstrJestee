@@ -27,8 +27,7 @@
 <br><br>
 
 <p align="center">
-  Proshippers dni (Since people ask for specifics when it comes to 'proshipper' I mean: PEOPLE WHO SHIP MINORS WITH ADULTS OR RELATIVES TOGETHER. "It's just fiction tho" Mofo, idgaf 🤣🤣🤣🤣🤣 Stay away from me please !!!)
-</p>
+  Proshippers dni 
 
 <br>
 
