@@ -43,7 +43,7 @@
 
 <div align="center">
   <p>My dearests, that are on GitHub:</p>
-  <p><a href="https://github.com/softtoyshark">@softtoyshark</a> my beloved minion/ #1 employee / slapstick knight / shark </p>
+  <p><a href="https://github.com/softtoyshark">@softtoyshark</a> my beloved minion/ #1 employee / slapstick knight / shark / fellow hell escapee </p>
   <p><a href="https://github.com/RBYI-DNC-NoINSPO-please">@Pay2WinMyHeart</a> my 'KeepThemShiggiesToYurself' (WHO LOST ACCESS TO HIS GITHUB LMFAOOOO. points and laughs. rolls on floor. laughs.)</p>
   <p><a href="https://github.com/AnxiousJester">@AnxiousJester</a> my labrat</p>
 </div>
