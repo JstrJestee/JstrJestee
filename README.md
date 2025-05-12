@@ -44,7 +44,7 @@
 <div align="center">
   <p>My dearests, that are on GitHub:</p>
   <p><a href="https://github.com/softtoyshark">@softtoyshark</a> my beloved</p>
-  <p><a href="https://github.com/RBYI-DNC-NoINSPO-please">@Pay2WinMyHeart</a> my beloved (WHO ISN'T DEADNAMING ME ON PURPOSE. HE JUST LOST ACCESS TO HIS GITHUB LMFAOOO)</p>
+  <p><a href="https://github.com/RBYI-DNC-NoINSPO-please">@Pay2WinMyHeart</a> my beloved (WHO LOST ACCESS TO HIS GITHUB LMFAOOOO. points and laughs. rolls on floor. laughs.)</p>
   <p><a href="https://github.com/AnxiousJester">@AnxiousJester</a> my beloved</p>
 </div>
 
