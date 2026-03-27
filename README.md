@@ -17,22 +17,8 @@
 
 
 
-
-
-
-<div align="center">
- Check out my straw.pages. The "Jesteesmilk" and "Hatesgreat" are matching ones with my ever so beloved, ever so lovely, ever so in debt, pookie Cetrus ♡
-</div>
-
-<br><br>
-
 <p align="center">
-  Proshippers dni 
-
-<br>
-
-<p align="center">
-  Under 13 dni. Over 25 dni. 
+  Happy to say I'm not as chornically online as I was before. So if you see me playing pt, youv've found a cryptid.
 </p>
 
 
@@ -41,15 +27,6 @@
 </p>
 
 
-<div align="center">
-  <p>My dearests, that are on GitHub:</p>
-  <p><a href="https://github.com/softtoyshark">@softtoyshark</a> my beloved minion/ #1 employee / slapstick knight / shark / fellow hell escapee </p>
-  <p><a href="https://github.com/RBYI-DNC-NoINSPO-please">@Pay2WinMyHeart</a> my 'KeepThemShiggiesToYurself' / formerly my Japanese Mythology sensei (WHO LOST ACCESS TO HIS GITHUB LMFAOOOO. points and laughs. rolls on floor. laughs.)</p>
-  <p><a href="https://github.com/AnxiousJester">@AnxiousJester</a> my labrat with a disorder or two / fellow jester FREAK</p>
-</div>
-
-<br><br>
-<hr> 
 
 <p align="center">
    "Long live folly; it is my livelihood!" 
