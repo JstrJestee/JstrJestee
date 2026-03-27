@@ -18,7 +18,7 @@
 
 
 <p align="center">
-  Happy to say I'm not as chronically online as I was before. So if you see me playing pt, youv've found a cryptid.
+  Happy to say I'm not as chronically online as I was before. So if you see me playing pt, youv've found a cryptid. Strawpages are out dated but my love for cetrus remains.
 </p>
 
 
