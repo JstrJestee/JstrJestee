@@ -18,7 +18,7 @@
 
 
 <p align="center">
-  Strawpages are outdated. Someone apparently changes a lot in two years yeesh. Anywho if I'm online I'm working on Adaluge
+  Strawpages are outdated. Someone apparently change a lot in two years yeesh. Anywho if I'm online I'm working on Adaluge
 </p>
 
 
