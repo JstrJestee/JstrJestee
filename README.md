@@ -18,7 +18,7 @@
 
 
 <p align="center">
-  Strawpages are outdated. Someone apparently change a lot in two years yeesh. Anywho if I'm online I'm working on Adaluge
+  I'm not chronicallly online, I just like having funny pony game up on a second monitor while I do homework and digital art 
 </p>
 
 
