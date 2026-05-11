@@ -4,23 +4,9 @@
 
 
 <div align="center">
-  "𝙸𝚏 𝙸 𝚊𝚖 𝚊 𝚏𝚘𝚘𝚕, 𝚒𝚝 𝚒𝚜 𝚋𝚢 𝚙𝚛𝚘𝚏𝚎𝚜𝚜𝚒𝚘𝚗!"
-  <br> - Mathurine de Vallois (Mathurine la Foole), Jester of the court of French kings Henry III, Henry IV, and Louis XIII  
-</div>
-
-
-
-
-<br><br>
-<hr> 
-<br><br>
-
-
-
-<p align="center">
-  I'm not chronicallly online, I just like having funny pony game up on a second monitor while I do homework and digital art 
-</p>
-
+## low key
+  
+  </div>
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/ff87c4e9-6357-4468-8c2e-3daa7b404224" width="300"/>
