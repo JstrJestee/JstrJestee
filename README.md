@@ -5,13 +5,7 @@
 
 <div align="center">
 <h2>
-  I'm online when I'm:
-  - At School
-  - On Blender
-  - On FL
-  - On ClipStudio
-  - On Godot
-  - Harassing my gf on horse game
+  I'm online when I'm workin on junk
 </h2>
 
 <h3>
