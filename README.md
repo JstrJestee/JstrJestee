@@ -5,7 +5,7 @@
 
 <div align="center">
 <h2>
-  I'm online when I'm working on stuffffff. 
+  I'm online when I'm working on stuffffff. Rn I'm on blender a lot. My current project is making my sona and snatcher a hat in time or smt hhh
 </h2>
 
 <h3>
