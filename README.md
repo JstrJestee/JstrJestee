@@ -5,7 +5,13 @@
 
 <div align="center">
 <h2>
-  I'm online when I'm working on stuffffff. Rn I'm on blender a lot. My current project is making my sona and snatcher a hat in time or smt hhh
+  I'm online when I'm:
+  - At School
+  - On Blender
+  - On FL
+  - On ClipStudio
+  - On Godot
+  - Harassing my gf on horse game
 </h2>
 
 <h3>
