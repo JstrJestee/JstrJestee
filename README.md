@@ -5,7 +5,7 @@
 
 <div align="center">
 <h2>
-  I'm online when I'm workin on junk
+  I'm online when I'm workin on junk or when I'm on a roleplay high
 </h2>
 
 <h3>
