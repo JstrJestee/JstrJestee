@@ -4,13 +4,10 @@
 
 
 <div align="center">
-<h2>
-  I'm online when I'm workin on junk or when I'm on a roleplay high
-</h2>
+<h4>
+  My strawpage is really old. I'm very different now and I haven't updated it lol. 
+</h4>
 
-<h3>
-  Also strawpage old as hell. I'm diff now, I think. I'll update it layter lollll
-</h3>
   
   </div>
 
