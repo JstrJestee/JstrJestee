@@ -4,9 +4,9 @@
 
 
 <div align="center">
-<h4>
+<h3>
   My strawpage is really old. I'm very different now and I haven't updated it lol. 
-</h4>
+</h3>
 
   
   </div>
