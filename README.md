@@ -5,7 +5,7 @@
 
 <div align="center">
 <h3>
-  My strawpage is really old. I'm very different now and I haven't updated it lol. 
+  My strawpage is really old. I'm very different now and I haven't updated it lol. So uhm whoever wrote that straw is NAWT me bro oh hell naw ong ong
 </h3>
 
   
