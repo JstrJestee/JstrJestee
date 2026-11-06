@@ -9,9 +9,6 @@
 </h3>
 
 
-<img width="1126" height="811" alt="image" src="https://github.com/user-attachments/assets/ecc80741-afaf-44b5-bfca-96209d7e14ff" width= "2000" />
-
-
   
   </div>
 
